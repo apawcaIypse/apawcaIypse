@@ -21,7 +21,7 @@ Here are some ideas to get you started:
  
 i'm interested primarily in **pokemon**, [r](https://www.youtube.com/watch?v=2Lpw3yMCWro)adiohead, **bungo stray dogs**, genshin impact, **zombies**, and criminology; i *don't* associate with the fandoms for obvious reasons but please talk to me if you aren't weird i love making friends
 
-[pt info](https://txti.es/819300) 
+[pt info](https://txti.es/819300) . [patreon](https://www.patreon.com/apawcalypse/about)
 
 
 ✩ - ✩ - ✩ - ✩ - ✩ - ✩ - ✩ - ✩ - ✩ - ✩ - ✩ - ✩ - ✩ - ✩ - ✩ - ✩ - ✩ - ✩ - ✩ - ✩ - ✩ - ✩ -✩ - ✩ - ✩ - ✩ - ✩ - ✩ - ✩ - ✩ - ✩ - 
